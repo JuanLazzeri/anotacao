@@ -1,3 +1,0 @@
-# anotacao
-# oraculo
-# oraculo
